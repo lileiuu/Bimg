@@ -1,2 +1,2 @@
 # Bimg
-Just for My Love bing.
+Just for My Love bingya Xu.
